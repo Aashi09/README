@@ -2,8 +2,8 @@
 
 **Location:** Indore, MP  
 **Phone:** +91 7024689911  
-**Email:** [Primary Email] | [Alternate Email]  
-**LinkedIn:** [LinkedIn Profile]
+**Email:** aashiguptaa2425@gmail.com | 9205.aashi@gmail.com
+**LinkedIn:** https://www.linkedin.com/in/aashi-here/
 
 ---
 
